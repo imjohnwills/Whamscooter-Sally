@@ -21,3 +21,5 @@ Please call (614)619-1357 with any contact or booking requests.
 Old Time Rock and Roll - Bob Seger
 Little Black Submarines - The Black Keys
 Whipping Post - Allman Brothers Band
+
+![alt text](http://www.washburn.com/products/electric/images/PXS10FRDLXWB.jpg "Logo Title Text 1")
