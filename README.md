@@ -32,7 +32,7 @@ Thomas (T-Time)
 
 CJ (The Jammer)
 
-![alt text] (https://scontent-ord1-1.xx.fbcdn.net/v/t34.0-12/18424693_10213075410744900_995573048_n.jpg?oh=337967d5d02b4f73e10be669cfa3cc01&oe=5914DD24)
+![alt text](https://scontent-ord1-1.xx.fbcdn.net/v/t34.0-12/18424693_10213075410744900_995573048_n.jpg?oh=337967d5d02b4f73e10be669cfa3cc01&oe=5914DD24)
 
 Rachel
 
