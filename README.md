@@ -59,6 +59,7 @@ Mac Rosselet (Tingle Tit)
 Mac is vibrant with energy and plays guitar to give back to music what is has given to her with hopes of rocking out with all of you in the process. Her motto says it all; "know music - know life, no music - no life."
 
 ![alt text](https://scontent-ord1-1.xx.fbcdn.net/v/t34.0-12/18386405_1902913233321050_699405515_n.jpg?oh=7c5ee8a46c923c036d0cc624598b811a&oe=5914C39B)
+
 Sarah Wills
 
 ### Contact Us
