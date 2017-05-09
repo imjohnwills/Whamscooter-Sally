@@ -5,12 +5,6 @@ Website for Band
 
 ##### This might works as a five-layer deep headliner
 
-### About Us
-
-Whamscooter Sally was founded very early 2017 as a group of three: Landon Argebrite [Former Spyder Blue] (lead guitar, vocals), John Wills (rhythm guitar, vocals), and CJ Schneider (Drums, vocals) and didn't our full group until early summer 2017 with the addition of Rachel Chiles (piano, backup vocals), Thomas Lanning (bass) and Mackenzie Ross (Acoustic Guitar).
-
-Thank you for looking at our page!
-
 ### Repertoire
 
 Old Time Rock and Roll - Bob Seger
@@ -19,26 +13,34 @@ Whipping Post - Allman Brothers Band
 
 ![alt text](http://www.washburn.com/products/electric/images/PXS10FRDLXWB.jpg "Logo Title Text 1")
 
+
+### About Us
+
+Whamscooter Sally was founded very early 2017 as a group of three: Landon Argebrite [Former Spyder Blue] (lead guitar, vocals), John Wills (rhythm guitar, vocals), and CJ Schneider (Drums, vocals) and didn't our full group until early summer 2017 with the addition of Rachel Chiles (piano, backup vocals), Thomas Lanning (bass) and Mackenzie Ross (Acoustic Guitar).
+
+Thank you for looking at our page!
+
 ### Meet the Band
 
-Landon
+Landon Argabrite
 
 John, a younger me would have had a bio very similar
 
-Thomas (T-Time)
+Thomas Lanning (T-Time)
+"When life's got you down, come join T-Time"
 
-T-Time is the life of the party, always looking for a good fun time. He started playing guitar at age 8. Then picked up bass guitar when he was 17. Music is in his heart and soul. He will make you not only enjoy the music, but feel it too"
+T-Time is the life of the party, always looking for a good, fun time. He started playing guitar at age 8. Then picked up bass guitar when he was 17. Music is in his heart and soul. He will make you not only enjoy the music, but feel it in your dickle.
 
 ![alt text](https://scontent-ord1-1.xx.fbcdn.net/v/t34.0-12/18425998_1315044631884577_756496753_n.jpg?oh=bf2338348213bc93d1a82a4e92525ce6&oe=5914B084)
 
-CJ (The Jammer)
-no man left behind
+CJ Schneider (The Jammer)
+"no man left behind"
 
-Some men just want to watch the world burn. Some of them want to hit it with sticks. I am both of those men
-"I just picked these things up 2 seconds so get off my dick
+Some men just want to watch the world burn. Some of them want to hit it with sticks. CJ is both of those men. He just picked the drum kit up 2 seconds so he has requested everyone, "get off [his] dick."
+
 ![alt text](https://scontent-ord1-1.xx.fbcdn.net/v/t34.0-12/18424693_10213075410744900_995573048_n.jpg?oh=337967d5d02b4f73e10be669cfa3cc01&oe=5914DD24)
 
-Rachel
+Rachel Chiles
 
 Rachel has been playing piano and singing since she was 11 years old. She's always looking for new opportunities to perform and better her skills. She's been involved in community musical theatre, sang backup vocals for Ben Folds, and toured for a few years in Tiffin University's rock/funk fusion band DFX. She's very glad to have found a home within Whamscooter Sally!
 
@@ -46,7 +48,7 @@ Rachel has been playing piano and singing since she was 11 years old. She's alwa
 
 John Wills (Stout Fellow)
 
-John started playing music back in 6th grade because the band teacher told him that playing trumpet would make him better at kissing girls. He quickly learned to resent that band teacher and switched to choir (still girls though) and has been singing ever since. He picked up piano in 9th grade (for the girls) and then switched to guitar (again for the girls).
+John started playing music back in 6th grade because the band teacher told him that playing trumpet would make him better at kissing girls. He quickly learned to resent that band teacher and switched to choir (still girls though) and has been singing ever since. He picked up piano in 9th grade (for the girls) and then switched to guitar a year later (again for the girls).
 
 Don't let him tell you he likes playing music - That's actually just to disguise his real reason for doing any of this.
 
@@ -56,7 +58,8 @@ Mac Rosselet (Tingle Tit)
 
 Mac is vibrant with energy and plays guitar to give back to music what is has given to her with hopes of rocking out with all of you in the process. Her motto says it all; "know music - know life, no music - no life."
 
-Sarah
+![alt text](https://scontent-ord1-1.xx.fbcdn.net/v/t34.0-12/18386405_1902913233321050_699405515_n.jpg?oh=7c5ee8a46c923c036d0cc624598b811a&oe=5914C39B)
+Sarah Wills
 
 ### Contact Us
 
