@@ -36,7 +36,7 @@ T-Time is the life of the party, always looking for a good, fun time. He started
 CJ Schneider (The Jammer)
 "no man left behind"
 
-Some men just want to watch the world burn. Some of them want to hit it with sticks. CJ is both of those men. He just picked the drum kit up 2 seconds so he has requested everyone, "get off [his] dick."
+Some men just want to watch the world burn. Some of them want to hit it with sticks. CJ is both of those men. He just picked the drum kit up 2 seconds so he has requested everyone cut him some slack because he's bad.
 
 ![alt text](https://scontent-ord1-1.xx.fbcdn.net/v/t34.0-12/18424693_10213075410744900_995573048_n.jpg?oh=337967d5d02b4f73e10be669cfa3cc01&oe=5914DD24)
 
