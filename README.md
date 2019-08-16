@@ -1,5 +1,7 @@
 # Whamscooter Sally
 
+Interesting that I wrote all this so long ago (8/15/19 @APcupertino)
+
 ### for all of your musical needs
 Website for Band
 
